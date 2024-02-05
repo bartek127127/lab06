@@ -1,1 +1,2 @@
 ﻿# lab06adasdasdasdasdda
+modyfikowanie 
